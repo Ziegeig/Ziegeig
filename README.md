@@ -2,3 +2,4 @@
 - 👀 I’m interested in old OS and Minecraft
 - 🌱 I’m currently learning Python
 - 📫 How to reach me Discord: jason9134
+- Mainlanguage: german. My english is very bad...
